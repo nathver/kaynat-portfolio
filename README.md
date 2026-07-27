@@ -1,1 +1,0 @@
-# kaynat-portfolio
